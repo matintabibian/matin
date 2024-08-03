@@ -28,7 +28,7 @@ Entrepreneurship
 Tech Projects
 
 Client Relations Specialist | Hertz | 05/2022 - Current
-Achievement: Top Salesman status in LA County, contributing to an additional $50,000 in monthly revenue.
+Achievement: Top Salesman status in the country, contributing to an additional $50,000 in monthly revenue.
 Achievement: Cultivated strategic partnerships with high-profile clients such as Tesla Collision Center, Caliber Collisions, Ford, and Jeep, resulting in significant revenue growth.
 
 Financial Sales Consultant | SeedXchange | 11/2023 - 04/2024
